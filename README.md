@@ -1,2 +1,2 @@
 ��# css-odev2
-[](https://ibb.co/zV83hMW)
+[görsel](https://ibb.co/zV83hMW)
